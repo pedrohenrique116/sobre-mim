@@ -32,7 +32,7 @@
 
 ## 🤝 Conecte-se comigo
 
-- 💼 [LinkedIn](https://www.linkedin.com/https://www.linkedin.com/in/pedro-henrique-luiz-alves-duarte-4645b128a/)  
+- 💼 [LinkedIn]https://www.linkedin.com/https://www.linkedin.com/in/pedro-henrique-luiz-alves-duarte-4645b128a/  
 - 📧 pedrohenriqueluiz9@gmail.com
 
 ---
